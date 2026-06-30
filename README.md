@@ -34,5 +34,6 @@ Currently, I am working as an **AI Engineer Intern**, where I contribute to AI-p
 * GitHub: [Github Account](https://github.com/sarth0317)
 * LinkedIn: [LinkedIn](https://linkedin.com/in/sarth-sawant-616077287)
 * Portfolio: [Portfolio](https://sarthsawant.my.canva.site/home/)
+* Instagram: [Sxrth_28](https://www.instagram.com/sxrth_28?igsh=Y3pva2ltNGp2NHJj&utm_source=qr)
 
 Thank you for visiting my repository!

@@ -1,4 +1,4 @@
-# Hi, I'm Sarth Sawant 👋
+# Hi, I'm Sarth Sawant 
 
 ## About Me
 
